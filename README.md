@@ -7,3 +7,5 @@ Discover the best Amazon gadgets, tech reviews, and daily loot deals.
 ---
 ### Featured Articles:
 - [7 Best Amazon Gadgets Under ₹500](https://topdealshubs.blogspot.com/2026/02/top-7-best-gadgets-under-500-on-amazon.html)
+- ### 🌍 Latest News & Updates:
+- [Escalation in Middle East: US-Israel Strike Update](https://topdealshubs.blogspot.com/2026/02/escalation-in-middle-east-us-israel.html)
