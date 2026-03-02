@@ -1,6 +1,7 @@
 # topdeals786.github.io
 ## Welcome to Top Deals Hub India
 Discover the best Amazon gadgets, tech reviews, and daily loot deals.
+### 📢 Latest Analysis: [Missiles Fly In Iran But Indian Markets Rally?](https://topdealshubs.blogspot.com/2026/03/missiles-fly-in-iran-but-indian-markets.html)
 
 🔗 **Visit our official blog for exclusive deals:** [https://topdealshubs.blogspot.com/](https://topdealshubs.blogspot.com/)
 
