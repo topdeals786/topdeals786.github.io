@@ -12,3 +12,4 @@ Discover the best Amazon gadgets, tech reviews, and daily loot deals.
 - [7 Best Amazon Gadgets Under ₹500](https://topdealshubs.blogspot.com/2026/02/top-7-best-gadgets-under-500-on-amazon.html)
 - 🌍 **Latest News & Updates:**
 - [Ayatollah Ali Khamenei: A Detailed Biography](https://topdealshubs.blogspot.com/2026/03/ayatollah-ali-khamenei-great-islamic.html)
+- * [Amazon Holi Sale 2026: 5 Tech Loot Deals You Can't Miss!](https://topdealshubs.blogspot.com/2026/03/amazon-holi-sale-2026-5-tech-loot-deals.html)
